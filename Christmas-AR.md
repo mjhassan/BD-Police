@@ -54,4 +54,5 @@ These Services do not address anyone under the age of 13\. I do not knowingly co
 I may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page. These changes are effective immediately after they are posted on this page.
 
 **Contact Us**
+
 If you have any questions regarding privacy while using the Application, or have questions about our practices, please contact us via email at jahid.hassan@live.com.
